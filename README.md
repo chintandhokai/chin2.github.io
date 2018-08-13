@@ -1,1 +1,0 @@
-# chintandhokai.githujb.io
